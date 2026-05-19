@@ -1,2 +1,0 @@
-# Fullsmart
-Secerdas Itu
